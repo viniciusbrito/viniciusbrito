@@ -1,3 +1,3 @@
 ## Vinícius Brito
 
-[The Vinícius Brito Blog](http:viniciusbrito.com)
+[The Vinícius Brito's Blog](http:viniciusbrito.com)
